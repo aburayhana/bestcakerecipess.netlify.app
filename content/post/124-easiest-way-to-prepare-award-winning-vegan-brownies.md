@@ -1,0 +1,92 @@
+---
+description: "Easiest Way to Prepare Award-winning Vegan Brownies"
+title: "Easiest Way to Prepare Award-winning Vegan Brownies"
+slug: 124-easiest-way-to-prepare-award-winning-vegan-brownies
+date: 2020-09-11T14:47:24.046Z
+image: https://img-global.cpcdn.com/recipes/5573259312496640/751x532cq70/vegan-brownies-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/5573259312496640/751x532cq70/vegan-brownies-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/5573259312496640/751x532cq70/vegan-brownies-recipe-main-photo.jpg
+author: Lettie Klein
+ratingvalue: 4.5
+reviewcount: 33372
+recipeingredient:
+- "200 grams Bread flour"
+- "30 grams Unsweetened cocoa powder"
+- "10 grams Baking powder"
+- "120 grams Soy milk"
+- "70 grams Canola oil"
+- "80 grams Beet sugar"
+- "40 grams Water"
+- "1 dash Salt"
+- "1 dash Vanilla beans"
+- "30 grams Coconut flakes"
+recipeinstructions:
+- "Preheat the oven to 170°C, and grease the tin with oil (not listed)."
+- "Put the ingredients marked ● in a bowl and mix well with a whisk. (This is so you don&#39;t have to sift)."
+- "Put the ingredients marked ★ in another bowl, and mix well with a whisk."
+- "Add the dry ingredients from the first bowl to the second, and fold in (don&#39;t knead it)."
+- "Add the coconut flakes to the bowl and mix."
+- "Pour the batter into the greased tin, and rap it against the counter a few times to even out the surface."
+- "Bake for 15-20 minutes at 170°C (when an inserted toothpick/skewer comes out clean, they&#39;re done.)"
+categories:
+- Recipe
+tags:
+- vegan
+- brownies
+
+katakunci: vegan brownies 
+nutrition: 112 calories
+recipecuisine: American
+preptime: "PT13M"
+cooktime: "PT38M"
+recipeyield: "4"
+recipecategory: Dessert
+
+---
+
+
+![Vegan Brownies](https://img-global.cpcdn.com/recipes/5573259312496640/751x532cq70/vegan-brownies-recipe-main-photo.jpg)
+
+Hey everyone, it is Drew, welcome to our recipe site. Today, I'm gonna show you how to make a special dish, vegan brownies. One of my favorites. For mine, I am going to make it a bit tasty. This is gonna smell and look delicious.
+
+To start out, I brainstormed all of the ingredients I could think of that can bind baked goods together in recipes. The list included items like banana and tofu. This really is the Best Ever Vegan Brownies Recipe! Fudgy, gooey, perfect squares of chocolate that cut easily and are easy to make.
+
+Vegan Brownies is one of the most well liked of current trending meals in the world. It is enjoyed by millions every day. It's simple, it's quick, it tastes yummy. Vegan Brownies is something that I've loved my entire life. They're nice and they look wonderful.
+
+
+To begin with this recipe, we have to first prepare a few components. You can have vegan brownies using 10 ingredients and 7 steps. Here is how you can achieve that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Vegan Brownies:
+
+1. Get 200 grams ●Bread flour
+1. Prepare 30 grams ●Unsweetened cocoa powder
+1. Make ready 10 grams ●Baking powder
+1. Make ready 120 grams ★Soy milk
+1. Get 70 grams ★Canola oil
+1. Get 80 grams ★Beet sugar
+1. Make ready 40 grams ★Water
+1. Get 1 dash ★Salt
+1. Make ready 1 dash ★Vanilla beans
+1. Get 30 grams Coconut flakes
+
+
+Vegan chocolate brownies that are ultra moist, mega chocolatey, dense, fudgy and everything a chocolate lover could dream of! These vegan chocolate brownies are triple chocolate! Both vegans and non-vegans will adore these delicious fudgy vegan brownies, made easy with everyday ingredients! These vegan brownies will change your mind about trying a healthier brownie option. 
+
+<!--inarticleads2-->
+
+##### Steps to make Vegan Brownies:
+
+1. Preheat the oven to 170°C, and grease the tin with oil (not listed).
+1. Put the ingredients marked ● in a bowl and mix well with a whisk. (This is so you don&#39;t have to sift).
+1. Put the ingredients marked ★ in another bowl, and mix well with a whisk.
+1. Add the dry ingredients from the first bowl to the second, and fold in (don&#39;t knead it).
+1. Add the coconut flakes to the bowl and mix.
+1. Pour the batter into the greased tin, and rap it against the counter a few times to even out the surface.
+1. Bake for 15-20 minutes at 170°C (when an inserted toothpick/skewer comes out clean, they&#39;re done.)
+
+
+Both vegans and non-vegans will adore these delicious fudgy vegan brownies, made easy with everyday ingredients! These vegan brownies will change your mind about trying a healthier brownie option. This is a super moist and soft dessert with a secret ingredient and plenty of chocolaty goodness involved. These are very gooey, which is a good thing in my book. Easy Vegan Brownies made with avocado, coconut sugar, coconut milk, and coconut oil. 
+
+So that is going to wrap it up with this exceptional food vegan brownies recipe. Thank you very much for reading. I'm sure that you will make this at home. There's gonna be more interesting food in home recipes coming up. Don't forget to save this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
